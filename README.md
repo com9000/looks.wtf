@@ -1,5 +1,6 @@
-A collection of looks I've found and use in chatting.
-
 (▰˘◡˘▰)
 
-[looks.wtf](https://looks.wtf)
+[https://lennyfaces.org/](lenny face)
+[https://emojikeyboard.me/](go keyboard)
+[https://tecladoemoji.es/](teclado emoji)
+[https://keyboard-themes.com/](keyboard themes)
